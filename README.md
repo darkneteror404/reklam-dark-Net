@@ -2,7 +2,7 @@
 Reklam
 All Copyright By Dark net
 
-https://media.discordapp.net/attachments/957001299445030992/959506515704811590/IMG_4442.jpg
+https://camo.githubusercontent.com/7bad0c043b715edda6211f1cf21604f20fd9a902de71211a38d14b0e4daab9dc/68747470733a2f2f646973636f72642e6339392e6e6c2f7769646765742f7468656d652d322f3334393934323936343930343030313534362e706e67
 
 Project discord.js V13 Bashtren Boty Reklam La Discord
 Stary 🌟 Projectaka Laber Makan
